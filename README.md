@@ -2,7 +2,7 @@
 ini berguna banget buat <i><b>prank</b></i> temen  kalian😈 <br>
 ga percaya? <br>
 cobain deh disini👇👇 <br>
-https://empy-ai09.github.io/special-foryou.github.io/ <br>
+https://empy-ai09.github.io/music-prank.github.io/ <br>
 btw kalo ga pake headset suaranya kecilin yah🤫
 <br>
 <br>
